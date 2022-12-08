@@ -1,2 +1,1 @@
-
 ## Projeto Site Apple 🍎
